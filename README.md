@@ -1,1 +1,2 @@
 # Project_Blessing_Hands_Pvt.ltd
+Blessing Hands Website - A professional platform for Blessing Hands Pvt Ltd, offering comprehensive insights into nursing academy programs and consulting services. The site highlights program details, consulting expertise, and the latest updates from the academy.
